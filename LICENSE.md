@@ -1,4 +1,4 @@
-
+anime card collection Script secret offers the most advanced anime card collection Script, with fly and no cooldown. Perfect for dominating any match.
 
 
 
